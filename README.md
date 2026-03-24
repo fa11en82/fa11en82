@@ -24,7 +24,7 @@
 
 ## 📫 How to Reach Me
 
-- Email: f8nas@gmail.com
+- Email: f8nasmail@gmail.com
 
 ## 🌐 Socials
 
